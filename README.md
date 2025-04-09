@@ -1,6 +1,6 @@
 ### Hi! 👋 I'm Elon Olsewer
 
-I am an Electrical engineering & software student 2nd year at Technion 
+I am an Electrical engineering & software student 4th year at Technion 
 
 ### How to reach me:
 
